@@ -1,4 +1,3 @@
-- 👋 Hi, I’m @syfr-512
 - 💞️ I’m looking to collaborate on: literally anything that takes away my boredom
 - 📫 How to reach me: don't unless you have something of interest
 - ⚡ Fun fact: i'm insane
