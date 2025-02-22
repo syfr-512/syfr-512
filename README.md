@@ -1,4 +1,4 @@
-literally Da Vinci when it comes to procrastination.
+what's the point?
 
 <!---
 syfr-512/syfr-512 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
